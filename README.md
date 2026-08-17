@@ -1,6 +1,6 @@
 # Whattupp folk 🖐️  
 
-- ᗢ I'm currently building **Binary-Asesino**  
-- ᗢ Ask me about automation  
+- ᗢ Building **myself**  
+- ᗢ Knows nothing
 - ᗢ How to reach me: [click here](https://pkmishra.netlify.app/)  
 - ᗢ 😊 Pronouns: He/him
